@@ -1,16 +1,15 @@
-## Hi there 👋
+## Boas Vindas ao meu perfil 🖤
+ 
+Meu nome é Heloiza Souza
 
-<!--
-**heloizaaab/heloizaaab** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-16anos
 
-Here are some ideas to get you started:
+-Cidade:Dirce-Reis
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+📞(17)99636-7040
+
+@heloiza988
+
+
+
+
